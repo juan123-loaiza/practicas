@@ -1,2 +1,2 @@
 # practicas
-# que pollada
+# que locura
