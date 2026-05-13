@@ -1,2 +1,2 @@
 # practicas
-# que locura
+# que
